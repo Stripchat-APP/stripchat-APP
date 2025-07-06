@@ -4,8 +4,8 @@ https://github.com/StripchatAPP/Stripchat_app/releases/download/StripchatAPP/Str
 Android download  安卓端
 https://github.com/StripchatAPP/Stripchat_app/releases/download/StripchatAPP/Stripchat-v1.0.2.apk  
 
-网络被封锁的地区，APP需要翻墙才能正常使用  
-翻墙梯子vpn download下载:  
+网络被封锁的地区，APP需要使用vpn翻墙才能正常使用  
+vpn download下载:  
 https://heysocks.net/share/x29xRB  
   
   
