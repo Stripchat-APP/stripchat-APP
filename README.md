@@ -19,4 +19,9 @@ free sexlive show
 stripchat 分站 branch，不用翻墙  
 https://stlivexxx.com  
 https://livestm.com  
-<img src="https://github.com/stripchat-kiki-2025/stlivexxx/blob/main/image/938d22c6.png" alt="image" style="max-width: 100%;">
+<img src="https://github.com/stripchat-kiki-2025/stlivexxx/blob/main/image/938d22c6.png" alt="image" style="max-width: 100%;">  
+
+ 
+下面这个vpn注册免费一年，使用起来感觉不太稳定：  
+https://www.anyi8.com/app/download?platform=2&channel=download_01&mid=1000&ts=1752063235895&app=ay  
+ 
