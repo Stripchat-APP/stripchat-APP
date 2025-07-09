@@ -23,5 +23,5 @@ https://livestm.com
 
  
 下面这个vpn注册免费一年，使用起来感觉不太稳定：  
-https://www.anyi8.com/app/download?platform=2&channel=download_01&mid=1000&ts=1752063235895&app=ay  
+[https://www.anyi8.com/app/download?platform=2&channel=download_01&mid=1000&ts=1752063235895&app=ay  ](https://www.ayay.one/app/download?platform=2&channel=download_01&mid=false&ts=1659604619571&app=ay)
  
