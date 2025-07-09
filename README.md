@@ -5,7 +5,7 @@ Android download  安卓端
 https://github.com/Stripchat-APP/stripchat-APP/releases/download/stripchatAPP/Stripchat-v1.0.2.apk  
 
 
-In areas where the network is blocked, apps need to use VPN to bypass walls in order to function properly
+In areas where the network is blocked, apps need to use VPN to bypass walls in order to function properly  
 网络被封锁的地区，APP需要使用vpn翻墙才能正常使用  
 vpn download下载:  
 https://heysocks.net/share/x29xRB  
