@@ -16,12 +16,12 @@ New registered users, remember to verify your email, otherwise you won't be able
   
   
 free sexlive show  
-stripchat 分站 branch，不用翻墙  
+stripchat 分站 branch，不需要vpn加速器， no need vpn
+https://stzhibo.com  
 https://stlivexxx.com  
 https://livestm.com  
 <a href="https://stlivexxx.com"><img src="https://github.com/stripchat-kiki-2025/stlivexxx/blob/main/image/938d22c6.png" alt="image" style="max-width: 100%;">  
 
  
-下面这个vpn注册免费一年，Android安卓：  
-https://www.ayay.one/app/download?platform=2&channel=download_01&mid=false&ts=1659604619571&app=ay
+
  
