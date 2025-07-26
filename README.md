@@ -35,7 +35,9 @@ https://skytreevpn.cc/?path=/register%3Fr%3Docpzzh
 注意选择的幣種，這裏以usdt爲主，usdt和usdc只有一個字母之差注意別選錯了   
 <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/st2.jpg" alt="image" style="max-width: 100%;">    
 <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/st3.jpg" alt="image" style="max-width: 100%;"> <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/st4.jpg" alt="image" style="max-width: 100%;">   
-<img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/st5.jpg" alt="image" style="max-width: 100%;"> <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/st6.jpg" alt="image" style="max-width: 100%;">   
+<img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/st5.jpg" alt="image" style="max-width: 100%;">   
+copy复制充值地址和充值价格    
+<img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/st6.jpg" alt="image" style="max-width: 100%;">   
 3.使用欧意okx為st充值：  
 <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/okst1.jpg" alt="image" style="max-width: 100%;"> <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/okst2.jpg" alt="image" style="max-width: 100%;">   
 选择对应幣種，新版app這裏选择交易所    
