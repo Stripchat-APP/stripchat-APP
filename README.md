@@ -38,9 +38,13 @@ https://skytreevpn.cc/?path=/register%3Fr%3Docpzzh
 <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/st3.jpg" alt="image" style="max-width: 100%;"> <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/st4.jpg" alt="image" style="max-width: 100%;">   
 <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/st5.jpg" alt="image" style="max-width: 100%;"> <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/st6.jpg" alt="image" style="max-width: 100%;">   
 3.使用欧意okx為st充值：  
-<img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/okst1.jpg" alt="image" style="max-width: 100%;"> <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/okst2.jpg" alt="image" style="max-width: 100%;">   
+<img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/okst1.jpg" alt="image" style="max-width: 100%;"> <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/okst2.jpg" alt="image" style="max-width: 100%;"> 
+选择对应幣種，新版app這裏选择交易所    
 <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/okst3.jpg" alt="image" style="max-width: 100%;"> <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/okst4.jpg" alt="image" style="max-width: 100%;">   
-<img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/okst5.jpg" alt="image" style="max-width: 100%;"> <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/okst6.jpg" alt="image" style="max-width: 100%;">   
+选择充幣地址所对应的充值網絡   
+<img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/okst5.jpg" alt="image" style="max-width: 100%;">   
+填入st充幣地址第6图中copy的地址和充值价格，注意加上okx的手續費，否則充值金額低于平台价格代币将不会到賬   
+<img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/okst6.jpg" alt="image" style="max-width: 100%;">   
 
 
 
