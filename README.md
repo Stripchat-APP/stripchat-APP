@@ -6,13 +6,13 @@ https://github.com/Stripchat-APP/stripchat-APP/releases/download/stripchatAPP/St
 
 
 In areas where the network is blocked, apps need to use VPN to bypass walls in order to function properly  
-网络被封锁的地区，APP需要使用vpn翻墙才能正常使用  
+网络被封鎖的地區，APP需要使用vpn翻墙才能正常使用  
 vpn download下载:  
 https://heysocks.net/share/x29xRB  
   
   
 New registered users, remember to verify your email, otherwise you won't be able to log in again  
-新注册用户，记得验证邮箱，不然无法二次登录
+新注冊用戶，記得验证邮箱，不然無法二次登录
   
   
 free sexlive show  
@@ -24,6 +24,7 @@ https://livestm.com
 
 
 其他vpn：  
-https://skytreevpn.cc/?path=/register%3Fr%3Docpzzh
+https://skytreevpn.cc/?path=/register%3Fr%3Docpzzh  
 
  
+充值教程準備中。。。
