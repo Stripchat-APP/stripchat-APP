@@ -33,6 +33,8 @@ https://skytreevpn.cc/?path=/register%3Fr%3Docpzzh
 <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/okc1.jpg" alt="image" style="max-width: 100%;"> <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/okc2.jpg" alt="image" style="max-width: 100%;">   
 2.获取st充幣地址：  
 <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/st1.jpg" alt="image" style="max-width: 100%;"> <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/st2.jpg" alt="image" style="max-width: 100%;">  
+
 <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/st3.jpg" alt="image" style="max-width: 100%;"> <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/st4.jpg" alt="image" style="max-width: 100%;">   
+
 <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/st5.jpg" alt="image" style="max-width: 100%;"> <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/st6.jpg" alt="image" style="max-width: 100%;">   
 
