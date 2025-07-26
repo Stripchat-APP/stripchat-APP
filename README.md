@@ -26,6 +26,18 @@ https://livestm.com
 其他vpn：  
 https://skytreevpn.cc/?path=/register%3Fr%3Docpzzh    
 
+机场加速器vpn：
+  pc电脑端  
+    https://github.com/2dust/v2rayN/releases   
+  安卓与iPhone    
+    https://sing-box.sagernet.org/zh/clients/    
+
+订阅地址：   
+  此订阅较贵，稳定性很好   
+    https://erwan6.net/auth/register?code=jQeZiR   
+  下面这个订阅非常便宜，稳定也还不错，推荐   
+    https://dash.996cloud.top/#/register?code=g5y7PghG    
+
  
 充值教程以欧意okx为例：  
 1.往交易所裏充幣：  
