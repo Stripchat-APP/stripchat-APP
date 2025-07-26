@@ -27,8 +27,7 @@ https://livestm.com
 https://skytreevpn.cc/?path=/register%3Fr%3Docpzzh    
 
  
-充值教程準備中。。。
-以欧意okx为例：  
+充值教程以欧意okx为例：  
 1.往交易所裏充幣：  
 <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/okc1.jpg" alt="image" style="max-width: 100%;"> <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/okc2.jpg" alt="image" style="max-width: 100%;">     
 2.获取st充幣地址：    
