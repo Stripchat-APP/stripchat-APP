@@ -26,7 +26,7 @@ https://livestm.com
 其他vpn：  
 https://skytreevpn.cc/?path=/register%3Fr%3Docpzzh    
 
-机场加速器vpn：
+机场加速器vpn：  
   pc电脑端  
     https://github.com/2dust/v2rayN/releases   
   安卓与iPhone    
