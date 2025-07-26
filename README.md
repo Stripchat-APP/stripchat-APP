@@ -28,3 +28,5 @@ https://skytreevpn.cc/?path=/register%3Fr%3Docpzzh
 
  
 充值教程準備中。。。
+
+<img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/okc1.jpg" alt="image" style="max-width: 100%;">  
