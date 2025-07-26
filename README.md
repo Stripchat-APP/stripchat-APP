@@ -32,9 +32,9 @@ https://skytreevpn.cc/?path=/register%3Fr%3Docpzzh
 1.往交易所裏充幣：  
 <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/okc1.jpg" alt="image" style="max-width: 100%;"> <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/okc2.jpg" alt="image" style="max-width: 100%;">     
 2.获取st充幣地址：    
-注意选择的幣種，這裏以usdt爲主，usdt和usdc只有一個字母之差注意別選錯了
-<img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/st1.jpg" alt="image" style="max-width: 100%;">  
-<img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/st2.jpg" alt="image" style="max-width: 100%;">  
+<img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/st1.jpg" alt="image" style="max-width: 100%;">    
+注意选择的幣種，這裏以usdt爲主，usdt和usdc只有一個字母之差注意別選錯了   
+<img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/st2.jpg" alt="image" style="max-width: 100%;">    
 <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/st3.jpg" alt="image" style="max-width: 100%;"> <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/st4.jpg" alt="image" style="max-width: 100%;">   
 <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/st5.jpg" alt="image" style="max-width: 100%;"> <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/st6.jpg" alt="image" style="max-width: 100%;">   
 3.使用欧意okx為st充值：  
