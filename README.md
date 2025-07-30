@@ -6,7 +6,7 @@ https://github.com/Stripchat-APP/stripchat-APP/releases/download/stripchatAPP/St
 
 
 In areas where the network is blocked, apps need to use VPN to bypass walls in order to function properly  
-網絡被封鎖的地區，APP需要使用vpn翻墙才能正常使用  
+網絡受限的地區，app需要使用vpn翻墙才能正常使用  
 vpn download下载:  
 https://heysocks.net/share/x29xRB  
   
