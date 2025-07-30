@@ -6,13 +6,13 @@ https://github.com/Stripchat-APP/stripchat-APP/releases/download/stripchatAPP/St
 
 
 In areas where the network is blocked, apps need to use VPN to bypass walls in order to function properly  
-网络被封鎖的地區，APP需要使用vpn翻墙才能正常使用  
+網絡被封鎖的地區，APP需要使用vpn翻墙才能正常使用  
 vpn download下载:  
 https://heysocks.net/share/x29xRB  
   
   
 New registered users, remember to verify your email, otherwise you won't be able to log in again  
-新注冊用戶，記得验证邮箱，不然無法二次登录
+新注冊用戶，記得验证邮箱，不然無法二次登录  
   
   
 free sexlive show  
@@ -26,15 +26,15 @@ https://stlivexxx.com
 https://skytreevpn.cc/?path=/register%3Fr%3Docpzzh    
 
 机场加速器vpn：  
-  pc电脑端  
+  pc電腦端  
     https://github.com/2dust/v2rayN/releases   
   安卓与iPhone    
     https://sing-box.sagernet.org/zh/clients/    
 
-订阅地址：   
-  此订阅较贵，稳定性很好   
+訂閲地址：   
+  此訂閲较贵，穩定性很好   
     https://erwan6.net/auth/register?code=jQeZiR   
-  下面这个订阅非常便宜，稳定也还不错，推荐   
+  下面這個訂閲非常便宜，穩定性也还不错，推荐   
     https://dash.996cloud.top/#/register?code=g5y7PghG    
 
  
