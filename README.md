@@ -55,7 +55,9 @@ copy复制充值地址和充值价格
 <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/okst3.jpg" alt="image" style="max-width: 100%;"> <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/okst4.jpg" alt="image" style="max-width: 100%;">     
 选择充幣地址所对应的充值網絡   
 <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/okst5.jpg" alt="image" style="max-width: 100%;">   
-填入st充幣地址第6图中copy的地址和充值价格，注意提幣金額這裏需要加上okx的手續費，否則充值金額低于平台价格代币将不会到賬   
+填入st充幣地址第6图中copy的地址和充值价格   
+注意提幣金額這裏需要在充值价格基礎上加上okx的手續費   
+否則充值金額低于平台价格代币将不会到賬   
 <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/okst6.jpg" alt="image" style="max-width: 100%;">   
 
 
