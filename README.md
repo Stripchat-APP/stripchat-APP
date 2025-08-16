@@ -21,10 +21,6 @@ https://stzhibo.com
 https://stlivexxx.com  
 <a href="https://stlivexxx.com"><img src="https://github.com/stripchat-kiki-2025/stlivexxx/blob/main/image/938d22c6.png" alt="image" style="max-width: 100%;">  
 
-點击小星星，給個关注   
-Click star to follow     
-<a href="https://stlivexxx.com"><img src="https://github.com/stripchat-kiki-2025/stlivexxx/blob/main/image/1c5e9769-951c-4ab5-8beb-4ad513624600.jpg" alt="image" style="max-width: 100%;">   
-<a href="https://stlivexxx.com"><img src="https://github.com/stripchat-kiki-2025/stlivexxx/blob/main/image/35b475b9-b995-495f-94c5-b2b8df259d51.jpg" alt="image" style="max-width: 100%;">  
 
 
 其他vpn：  
@@ -64,8 +60,12 @@ copy复制充值地址和充值价格
 填入st充幣地址第6图中copy的地址和充值价格   
 注意提幣金額這裏需要在充值价格基礎上加上okx的手續費   
 否則充值金額低于平台价格代币将不会到賬   
-<img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/okst6.jpg" alt="image" style="max-width: 100%;">   
+<img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/okst6.jpg" alt="image" style="max-width: 100%;">    
 
 
 
+點击小星星，給個关注   
+Click star to follow     
+<a href="https://stlivexxx.com"><img src="https://github.com/stripchat-kiki-2025/stlivexxx/blob/main/image/1c5e9769-951c-4ab5-8beb-4ad513624600.jpg" alt="image" style="max-width: 100%;">   
+<a href="https://stlivexxx.com"><img src="https://github.com/stripchat-kiki-2025/stlivexxx/blob/main/image/35b475b9-b995-495f-94c5-b2b8df259d51.jpg" alt="image" style="max-width: 100%;">  
 
