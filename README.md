@@ -38,7 +38,9 @@ https://skytreevpn.cc/?path=/register%3Fr%3Docpzzh
   下面這個訂閲非常便宜，穩定性也还不错，推荐   
     https://dash.996cloud.top/#/register?code=g5y7PghG    
 
- 
+欧意okx下载地址  
+https://static.okx.com/upgradeapp/android.apk
+  
 充值教程以欧意okx为例：  
 1.往交易所裏充幣：  
 <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/okc1.jpg" alt="image" style="max-width: 100%;"> <img src="https://github.com/Stripchat-APP/stlivexxx/blob/main/image/okc2.jpg" alt="image" style="max-width: 100%;">     
